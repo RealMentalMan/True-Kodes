@@ -1,1 +1,1 @@
-# True-Kodes
+# Thank you for cheking!
